@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, are you bored im bored lets be bored together 👋
 
 <!--
 **SLobnixly/SLobnixly** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
